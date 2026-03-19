@@ -1,16 +1,16 @@
-## Hi there 👋
+![IMG_1913](https://github.com/user-attachments/assets/0cf3cd3c-3f5b-48e0-8df0-0793bf7cd47e)
 
-<!--
-**whatafreak/whatafreak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+welcome all who see me to my GitHub, I am mostly known as Abel, but I am starting to lean towards Vierce, so I don't mind that either. I am not station my age publicly but I have you know I am above 15, meaning I do not want people under 14 to interact with me.
 
-Here are some ideas to get you started:
+I have many interests to go around and share, yet most of them I will keep to myself until I have grown on you. <3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![IMG_1915](https://github.com/user-attachments/assets/0fcf4192-aa10-48d5-bfc6-07edc5ffe163)
+
+
+I am diagnosed with ADHD and taking medication for it.
+
+I will like to say this now, do NOT refer to me as a SYSTEM/someone with DID, I do not have it. I simply am a fictonkin of many of my characters I tend to mention.
+
+I hope we could become friends. . Or not. Anyways, don't be scared to talk to me. 
+
+![IMG_1914](https://github.com/user-attachments/assets/57e38c5e-6933-477d-812d-d6e948e31b98)
