@@ -21,7 +21,7 @@ payments options: Cashapp, robux, pt supporter t2-t4, etc!
 
 notes: 
 
-- I am a self-taught artist, so my proportions, colors, etc, may be a little off! 
+- I am a self-taught artist! 
 
 - I usually use apps like whiteboard fox, or ibis paint
 
