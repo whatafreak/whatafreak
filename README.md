@@ -14,3 +14,29 @@ I will like to say this now, do NOT refer to me as a SYSTEM/someone with DID, I 
 I hope we could become friends. . Or not. Anyways, don't be scared to talk to me. 
 
 ![IMG_1914](https://github.com/user-attachments/assets/57e38c5e-6933-477d-812d-d6e948e31b98)
+
+Art comms! : (Status: OPEN)
+
+payments options: Cashapp, robux, pt supporter t2-t4, etc!
+
+notes: 
+
+- I am a self-taught artist, so my proportions, colors, etc, may be a little off! 
+
+- I usually use apps like whiteboard fox, or ibis paint
+
+I can do... : 
+
+ocs, characters, etc!
+
+I will not do... :
+
+nsfw, over complexed designs I do not understand, gore, etc
+
+!! I will let you know that most of my drawings tend to NOT be colored! However, if you want color it will cost extra if you are paying with CASHAPP (extra $5, making it $10).
+
+When you commission me, the starting point is $5 for a drawing. 
+
+Do let me know if you want a full body, half, or headshot!
+
+DM if interested, ty! 
