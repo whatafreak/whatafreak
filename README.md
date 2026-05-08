@@ -3,7 +3,7 @@
 
 ![IMG_1913](https://github.com/user-attachments/assets/0cf3cd3c-3f5b-48e0-8df0-0793bf7cd47e)
 
-welcome all who see me to my GitHub, I am mostly known as Abel, but I am starting to lean towards Vierce, so I don't mind that either. I am not stating my age publicly but I have you know I am above 15, meaning I do not want people under 15 people to interact with me.
+welcome all who see me to my GitHub, I am mostly known as Abel, but I am starting to lean towards Vierce or Doom, so I don't mind that either. I am not stating my age publicly but I have you know I am above 15, meaning I do not want people under 15 people to interact with me.
 
 I have many interests to go around and share, yet most of them I will keep to myself until I have grown on you. <3
 
