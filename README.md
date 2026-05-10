@@ -1,45 +1,21 @@
-[prns.page](https://en.pronouns.page/@witheraway)
+links placed above soon.
 
 
-![IMG_1913](https://github.com/user-attachments/assets/0cf3cd3c-3f5b-48e0-8df0-0793bf7cd47e)
 
-welcome all who see me to my GitHub, I am mostly known as Abel, but I am starting to lean towards Doom, so I don't mind that either. I am not stating my age publicly but I have you know I am above 15, meaning I do not want people under 15 people to interact with me.
+<img width="736" height="414" alt="IMG_2526" src="https://github.com/user-attachments/assets/e6eb40a7-8385-4410-a442-b42e93912196" />
 
-I have many interests to go around and share, yet most of them I will keep to myself until I have grown on you. <3
+hello, I have a lot of names but i prefer to go by Doom or Doombringer. if you are reaching this, it is most likely through ponytown or discord. i am a very introverted person, here's a few things about me if you decide to interact. 
 
-![IMG_1915](https://github.com/user-attachments/assets/0fcf4192-aa10-48d5-bfc6-07edc5ffe163)
+<img width="735" height="439" alt="IMG_2527" src="https://github.com/user-attachments/assets/a7730ab5-7b7b-4791-b658-29556815ec3c" />
 
 
-I am diagnosed with ADHD and taking medication for it.
+- i am a minor, yet anyone under 13, do not interact with me. i make this a very clear statement. i am not comfortable with interacting with -13 year olds.
+- i have a lot of interests, most i will not share with you unless i am comfortable enough.
+- standard dni list, you get the gist.
+- i am starting to not use tonetags, if this is a problem, ask me.
+- c+h only if i have it in my name.
+- i do not hesitate to block.
 
-I will like to say this now, do NOT refer to me as a SYSTEM/someone with DID, I do not have it. I simply am a fictonkin of many of my characters I tend to mention.
+  <img width="735" height="447" alt="IMG_2523" src="https://github.com/user-attachments/assets/0a55aec7-1139-4458-a737-c6c985bd0cdd" />
 
-I hope we could become friends. . Or not. Anyways, don't be scared to talk to me. 
-
-![IMG_1914](https://github.com/user-attachments/assets/57e38c5e-6933-477d-812d-d6e948e31b98)
-
-Art comms! : (Status: OPEN)
-
-payments options: Cashapp, robux, pt supporter t2-t4, etc!
-
-notes: 
-
-- I am a self-taught artist! 
-
-- I usually use apps like whiteboard fox, or ibis paint
-
-I can do... : 
-
-ocs, characters, etc!
-
-I will not do... :
-
-nsfw, over complexed designs I do not understand, gore, etc
-
-!! I will let you know that most of my drawings tend to NOT be colored! However, if you want color it will cost extra if you are paying with CASHAPP (extra $5, making it $10).
-
-When you commission me, the starting point is $5 for a drawing. 
-
-Do let me know if you want a full body, half, or headshot!
-
-DM if interested, ty! 
+“ The world is full of people waiting to crack underneath their porcelain facade faces that they hide behind. Fear all. ”
