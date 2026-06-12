@@ -19,4 +19,4 @@ hello, I have a lot of names but i prefer to go by Doom or Doombringer. if you a
 <img width="625" height="232" alt="AB0075DB-C22C-4D6E-8AC0-5252C947929F" src="https://github.com/user-attachments/assets/34c0238b-d669-4714-9356-39889d5b3e4f" />
 
 
-“ The world is full of people waiting to crack underneath their porcelain facade faces that they hide behind. Fear all. ”
+@whatafreak on everything
