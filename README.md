@@ -1,4 +1,4 @@
-[prns.page](https://en.pronouns.page/@witheraway)
+[prns.page](https://en.pronouns.page/@whatafreak)
 
 
 
