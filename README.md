@@ -3,7 +3,7 @@
 
 
 
-hello, I have a lot of names but i prefer to go by Doom or Doombringer. if you are reaching this, it is most likely through ponytown or discord. i am a very introverted person, here's a few things about me if you decide to interact. 
+hello, I have a lot of names but i prefer to go by Doom. if you are reaching this, it is most likely through ponytown or discord. i am a very introverted person, here's a few things about me if you decide to interact. 
 
 <img width="735" height="245" alt="828A7174-AEEB-41F2-9A44-E4A6E245A266" src="https://github.com/user-attachments/assets/369d98ce-b05a-499a-85eb-6b3444aff7eb" />
 
