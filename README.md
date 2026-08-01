@@ -11,7 +11,9 @@
 
  @whatafreak or @whatafreak_ on everything.
 
+![1000005919](https://github.com/user-attachments/assets/1adb2b46-e284-4c83-850b-e5917ead69ec)
 
+✧ ▬ ▬▭▬ ✦ REPENT? ✧ RECLAIM. ✦ ▬▭▬ ▬ ✧
 
 
 FANDOM DNI: Any problematic fandoms that I know or I am educated on or do not want to be with. (This includes yandere-centered, hoyoverse, alfreds playhouse, dandys world (iwec), the freak circus, countryhumans, etc etc.) do not interact with me.
