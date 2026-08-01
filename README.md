@@ -10,3 +10,10 @@
 
 
  @whatafreak or @whatafreak_ on everything.
+
+
+
+
+FANDOM DNI: Any problematic fandoms that I know or I am educated on or do not want to be with. (This includes yandere-centered, hoyoverse, alfreds playhouse, dandys world (iwec), the freak circus, countryhumans, etc etc.) do not interact with me.
+
+if you are a friend of mine in some of these fandoms, it is a whether or whether not you're fine.
